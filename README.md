@@ -1,0 +1,1 @@
+# nam7720000-afk.github.io
